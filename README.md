@@ -1,0 +1,1 @@
+# How-to-Send-a-Chart-to-Microsoft-office-PowerPoint-from-Microsoft-office-Excel-
